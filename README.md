@@ -12,7 +12,7 @@
   - Innovative tools or platforms related to payment gateways or dispute management systems  
 
 - 📫 **How to Reach Me:**  
-  [Email](Prudhvireddy07@icloud.com.com) | [LinkedIn](https://www.linkedin.com/in/prudhvireddy7) | [GitHub](https://github.com/Prudhvi07USA)  
+  [Email](Prudhvireddy07@icloud.com) | [LinkedIn](https://www.linkedin.com/in/prudhvireddy7) | [GitHub](https://github.com/Prudhvi07USA)  
 
 - 😄 **Pronouns:**  
   He/Him  
